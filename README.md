@@ -1,2 +1,0 @@
-# Damithaththanayakalk
-Dm
